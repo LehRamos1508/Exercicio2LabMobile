@@ -1,4 +1,4 @@
 # telas 
-![WhatsApp Image 2025-02-18 at 22 28 59_dcef86e3](https://github.com/user-attachments/assets/75575bdc-857c-4e43-a7c8-16431fa33993)
-![WhatsApp Image 2025-02-18 at 22 28 59_620ef9de](https://github.com/user-attachments/assets/0186ccc2-f9ba-426d-83fe-5be73efbf3d4)
-![WhatsApp Image 2025-02-18 at 22 28 59_34ad4d9e](https://github.com/user-attachments/assets/d6b426f4-e2e7-4766-96b3-6065487b81ca)
+![1](https://github.com/user-attachments/assets/500df1eb-3679-4c27-a880-fbe93039f94e)
+![2](https://github.com/user-attachments/assets/0ee8fed1-09c1-4bdb-8c7e-b19bde955cbb)
+![3](https://github.com/user-attachments/assets/8e87e94e-151f-45bf-b00d-75686de2c3f6)
